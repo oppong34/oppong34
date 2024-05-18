@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @oppong34
 - 👀 I’m interested in ...machine learning algothrims 
-- 🌱 I’m currently learning ...Machine learning 
+- 🌱 I’m currently learning ...Machine learning and Ethical hacking !!full stuck developer !! Biometric palm scanning Technology !! SPS!! many more 
 - 💞️ I’m looking to collaborate on ...CCNA and SPS Team and Alx backend developer and Artificial intelligence 
 - 📫 How to reach me ... +233594553782
 - 😄 Pronouns: ...
